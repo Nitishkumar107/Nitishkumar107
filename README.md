@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nitishkumar107
 - 👀 I’m interested in ...Data Science ,AI, Machine Learning role
-- 🌱 I’m currently learning ...Data SCience and AI
+- 🌱 I’m currently working in ...Data SCience and AI
 - 💞️ I’m looking to collaborate on ...good project to work on it
 - 📫 How to reach me ...9064332715 or email -:Nitish10795@gmail.com
 
